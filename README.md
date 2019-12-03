@@ -1,2 +1,4 @@
 # Meeet
-Third project
+Third project by Amine, Thomas and Sarah
+
+GO GO GOOOOOOO
